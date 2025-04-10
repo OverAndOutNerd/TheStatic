@@ -180,3 +180,21 @@ The disappearance of **Megan Harper** and the clues she left behind pull **Noah*
 - **Diegetic Sound**: Cues from radios, tapes, and TVs to deepen unease.
 
 ---
+
+## VI. Long-Term Storylines & Franchise Potential
+
+### Season One:
+
+Focuses on unraveling the mystery of “The Signal” and the disappearance of Megan Harper while deepening the personal and familial stories of the kids.
+
+
+### Season Two:
+
+Explores the origins of the cursed broadcast and the dark legacy behind Maple’s secrets, with the kids, now older, facing the lasting consequences of their summer ordeal.
+
+
+### Spin-Off Possibilities:
+
+A prequel mini-series or movie detailing the abandoned TV station’s history and the first occurrence of “The Signal.”
+
+Anthological tales from other towns affected by similar supernatural phenomena, expanding the universe of analog horror.
